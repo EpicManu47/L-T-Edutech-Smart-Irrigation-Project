@@ -1,1 +1,0 @@
-# L-T-Edutech-Smart-Irrigation-Project
